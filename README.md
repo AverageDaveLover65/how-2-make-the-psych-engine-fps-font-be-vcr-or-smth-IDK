@@ -11,3 +11,7 @@ comple and UR DONE lmao
 
 # or
 copy fps.hx from here and be lazy as fuck
+
+# yayayya
+NOW YOU HAVE VCR okay credit me for this valuable information
+or be punished as you have stolen code from me........................................................
